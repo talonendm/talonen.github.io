@@ -148,14 +148,18 @@ Typistä joka vuosi juhannuksen tienoilla vuorimännyn uudesta vuosikasvusta puo
 - 1.7.2021: [hevonhierakka](https://www.luontoportti.com/suomi/fi/kukkakasvit/hevonhierakka), peltokorte ym. nyppimistä. Kissankellot kukkivat. Perenna [pihakäenkaali](https://puutarha.net/kasvikortisto/perennat/pihakaenkaali_1297.htm)a normaalia enemmän ja se kukkii lähipäivinä. [Kissanminttu](https://fi.wikipedia.org/wiki/Aitokissanminttu) kukkinut jo jonkin aikaa rappusten juurella.
 - 1.7.2021: Härkäpavun siirto kasvulavalta omiin ruukkuihin. 
 - 2.7.2021: Kirvoja entistä enemmän omenapuissa, kylmällä vedellä ruiskuttelua ja kuolleiden lehtien poistaminen mekaanisesti.
+- 12.8.2021: Viimeisiä kurkkuja kerätään. Sato onnistui erinomaisesti altakastelulavalla. Kuivemassa kohtaa ei edes itänyt mutta n. 6 siemenestä tuli yli 20 isoa kurkkua jo heinäkuun lopulla. Sieminiä talteen näiden [Suomela-ohjeiden](https://www.suomela.fi/keraa-siemenpankki) mukaisesti: "Kerää siemenet pitkittäin halkaistusta kurkusta. Irroita ne lusikalla kaapimalla ja puhdista sormin hieromalla. Kuivaa siemenet talous- tai imupaperin päällä. Säilytä kirjekuoressa, suodatin- tai paperipusseissa.".
+- 12.8.2021: Monivuotinen vahva idänunikon siemenet talteen ennen sateita. Olivat tulentuneet hyvin jo elokuun alussa. Kuivatus tassilla.
+
 
 # Bongaukset - eläimet tms
 - Kettu, valkohäntäpeura, metsäkauris.
 - 19.5.2021: [Viinimäkikotelo - Helix pomatia](https://xn--tkktieto-2za0pb.fi/cat?id=46) (Kirkkonummi), on uusi tuttavuus Suomessa, ks. [keskustelu](https://keskustelu.suomi24.fi/t/3197925/viinimakikotilo!!) - [Kari](https://spongebob.fandom.com/wiki/Gary_the_Snail) jättää melkoista limavanaa jälkeensä.
-- 11.6.2021 Syviksellä lämmin vesi, keskustan puissa harsomaista kudosta [Tuomenkehrääjäkoi - Yponomeuta evonymella](https://fi.wikipedia.org/wiki/Tuomenkehr%C3%A4%C3%A4j%C3%A4koi). Toivottavasti ei tartu pihan omenapuihin, sillä näyttäisi tulevan ihan hyvä sato (ihan pieniä omenanalkuja).
+- 11.6.2021 Syviksellä lämmin vesi, keskustan puissa harsomaista kudosta [Tuomenkehrääjäkoi - Yponomeuta evonymella](https://fi.wikipedia.org/wiki/Tuomenkehr%C3%A4%C3%A4j%C3%A4koi). Toivottavasti ei tartu pihan omenapuihin, sillä näyttäisi tulevan ihan hyvä sato (ihan pieniä omenanalkuja). (add: 12.8.2021: ei tarttunut eikä Tuomissakaan pahemmin näkynyt tuholaisia.)
 - 12.6.2021: pieni linnunpoikanen tipahtanut pesästään. Piileskeli pensaassa.
 - 30.6.2021: paarmoja todella paljon pihalla, nurmikon leikkuu vaatii asennetta.
-
+- 2.7.2021: vesimyyrä juoksentelee terassilla. Luultavasti rapistellut pensaassa aiemminkin. Tämä yksilö lähes kokonaan musta n. 10-20cm pitkä lyhyt häntäinen.
+- 1.8.2021: Espajansiruetanoita Upinniementiellä ja muutama yksityistiellä. Kerääminen alkakoon.
 
 # Aitat:
 
