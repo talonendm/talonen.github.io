@@ -174,6 +174,8 @@ D: Kahala:
 - Suunnitelmat ja todo/ -> tekstidokumentti
 - vero/2021_brothers/ -> matkapäiväkirja
 
+# Linkkejä
+- Uutinen 2.5.2021 [metsäalan opinnoista](https://yle.fi/uutiset/3-11905621).
 
 
 # Veroyhtymä
