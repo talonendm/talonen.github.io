@@ -150,6 +150,15 @@ Typistä joka vuosi juhannuksen tienoilla vuorimännyn uudesta vuosikasvusta puo
 - 2.7.2021: Kirvoja entistä enemmän omenapuissa, kylmällä vedellä ruiskuttelua ja kuolleiden lehtien poistaminen mekaanisesti.
 - 12.8.2021: Viimeisiä kurkkuja kerätään. Sato onnistui erinomaisesti altakastelulavalla. Kuivemassa kohtaa ei edes itänyt mutta n. 6 siemenestä tuli yli 20 isoa kurkkua jo heinäkuun lopulla. Sieminiä talteen näiden [Suomela-ohjeiden](https://www.suomela.fi/keraa-siemenpankki) mukaisesti: "Kerää siemenet pitkittäin halkaistusta kurkusta. Irroita ne lusikalla kaapimalla ja puhdista sormin hieromalla. Kuivaa siemenet talous- tai imupaperin päällä. Säilytä kirjekuoressa, suodatin- tai paperipusseissa.".
 - 12.8.2021: Monivuotinen vahva idänunikon siemenet talteen ennen sateita. Olivat tulentuneet hyvin jo elokuun alussa. Kuivatus tassilla.
+- 21.8.2021: Liian isoiksi (mutta ihan ok makuisten) kurkkujen sieminien talteen otto ja kuivaus. Leikka kurkku poikittain kahtia ja sitten siemen alueet talteen leikkaamalla kolme 120 asteen lohkoa.
+- 22.8.2021: kesäkeittiön istuma-alueen maantasoitus ja kiviä n. 10-20 cm syvyydelle. Päälle sepeliä ja laatoitus. Ei enää grillailua mudassa.
+- 23.8.2021: Testi, idän unikot kuivauksen jälkeen maahan. N. 7-15 cm syvä reikä maahan rautakangella ja reikään unikon kota ja sieminiä. Samaan linjaan kuin entisetkin unikot itäisellä rinteellä. Lisäksi traktorille tehdylle ajoradan reunalle n. 10 kohtaan.
+- 26.8.2021: Tienvarsi istutukset onnistui hyvin. Maa melko savista ja köyhää, joten unikot ja auringonkukat tämän jälkeen melko pieniä. Lisäksi säästin luonnonkukat, kuten siankärsämön ja [pietaryrtin](https://fi.wikipedia.org/wiki/Pietaryrtti).
+- 27.8.2021: Espanjasiruetanoita vielä paljon, mutta kuitenkin vähemmän jos mekaanista keräystä ei niin aktiivisesti.
+- 27.8.2021: Marja-aronia sato on ällistyttyvän upea. Muutamassa minuutissa vajaa kilogramma marjoja aamupuurojen päälle.
+- 27.8.2021: kurkkuja tulee vielä muutama, vaikka itse kasvi näyttääkin jo pikkuhiljaa kuolevan.
+- 28.8.2021: Ensimmäiset kanttarellit luoteiselle metsäalueella, yksi ehkä jo sopivan kokoinen.
+- 28.8.2021: Muutama [karvarousku](https://www.martat.fi/marttakoulu/sesongin-ruoka-aineet/sienet/karvarousku/) nurmikentällä (läntinen).
 
 
 # Bongaukset - eläimet tms
