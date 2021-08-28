@@ -159,6 +159,7 @@ Typistä joka vuosi juhannuksen tienoilla vuorimännyn uudesta vuosikasvusta puo
 - 27.8.2021: kurkkuja tulee vielä muutama, vaikka itse kasvi näyttääkin jo pikkuhiljaa kuolevan.
 - 28.8.2021: Ensimmäiset kanttarellit luoteiselle metsäalueella, yksi ehkä jo sopivan kokoinen.
 - 28.8.2021: Muutama [karvarousku](https://www.martat.fi/marttakoulu/sesongin-ruoka-aineet/sienet/karvarousku/) nurmikentällä (läntinen).
+- 28.8.2021: Lämmintä ja kosteaa. Melko moni marja-aronia jo halki. Poimittava tänään ja huomenna. 
 
 
 # Bongaukset - eläimet tms
@@ -169,6 +170,7 @@ Typistä joka vuosi juhannuksen tienoilla vuorimännyn uudesta vuosikasvusta puo
 - 30.6.2021: paarmoja todella paljon pihalla, nurmikon leikkuu vaatii asennetta.
 - 2.7.2021: vesimyyrä juoksentelee terassilla. Luultavasti rapistellut pensaassa aiemminkin. Tämä yksilö lähes kokonaan musta n. 10-20cm pitkä lyhyt häntäinen.
 - 1.8.2021: Espajansiruetanoita Upinniementiellä ja muutama yksityistiellä. Kerääminen alkakoon.
+- 8.2021: Lepakoita joka ilta.
 
 # Aitat:
 
